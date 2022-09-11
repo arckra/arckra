@@ -1,0 +1,5 @@
+- 👋 Hi, I’m ari cakra
+- 👀 I’m live in cikarang
+- 👨‍💻 I’m like a coding and i'm newbie
+- 💞️ I love tiara amanda djunaedi and i always love she is
+- 🤖 Hi,Hello everyone
